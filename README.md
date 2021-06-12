@@ -12,7 +12,7 @@ That other ship was originaly something I was working on but changed my mind and
 
 https://windmillart.net/?p=jsplacement is quite useful for making textures, highly recomend checking it out if you haven't already. 
 
-
+<img src="https://i.imgur.com/VAF75Li.jpg">
 
 
 
