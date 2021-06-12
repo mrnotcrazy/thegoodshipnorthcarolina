@@ -6,7 +6,7 @@ I dont even think I spelled every thing correctly BUT! its free and no one paid 
 
 Parenting got a bit crazy... 
 
-Some labels might be different cause I wasnt sure how copyright and stuff works. 
+Some labels might be different cause I wasnt sure how copyright and stuff works and I also didnt plan on the file being so large so.... some stuff had to go. You can use the blender material library to get them back if you want
 
 That other ship was originaly something I was working on but changed my mind and made North Carolina into a ship. 
 
